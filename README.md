@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @StellaFarley3453
+- 👀 I’m interested in surviving.
+- 🌱 I’m currently learning Python,Javascript, and Java.
+- 💞️ I’m looking to collaborate on nothing, if I can help it.
+- 📫 How to reach me: please don't
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: Nothing fun about me
